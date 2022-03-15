@@ -23,7 +23,7 @@
 •	Microsoft Access
 •	Licence and vehicle
 
-- 💞️ I’m looking to collaborate on C# Applocations
+- 💞️ I’m looking to collaborate on C# Applications
 •	Java (Console and GUI)
 •	C# (Windows Forms, WPF, ASP.Net, MVC, XAML, HTML)
 •	MongoDB 
