@@ -1,15 +1,6 @@
 - 👋 Hi, I’m @Thavi021
 
 
-Instagram @Device_Devs
-https://www.instagram.com/device_devs/
-
-Instagram @extremewheelsntyre
-https://www.instagram.com/extremewheelsntyre/
-https://www.instagram.com/airluxdistro/
-https://www.instagram.com/grounded.art.suspension/
-https://www.instagram.com/device_devs/
-
 
 
 Instagram @Thavi.02
